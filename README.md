@@ -1,1 +1,1 @@
-htts://deltaexexutor.krox5.com.br
+htts://deltaexecutor.krox5.com.br
